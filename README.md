@@ -18,18 +18,18 @@
 
 ![alt](https://github.com/i4AI-LAB/2026ResearchThemes/blob/main/20260131%20Dr%20Yi%20Chen's%20Research%20Theme%20-%20Symbiosis_Systems_and_Agentic_Innovation_029.jpg)
 
-![alt](https://github.com/i4AI-LAB/2026ResearchThemes/blob/main/20260131%20Dr%20Yi%20Chen's%20Research%20Theme%20-%20Symbiosis_Systems_and_Agentic_Innovation_210.jpg)
+![alt](https://github.com/i4AI-LAB/2026ResearchThemes/blob/main/20260131%20Dr%20Yi%20Chen's%20Research%20Theme%20-%20Symbiosis_Systems_and_Agentic_Innovation_0210.jpg)
 
-![alt](https://github.com/i4AI-LAB/2026ResearchThemes/blob/main/20260131%20Dr%20Yi%20Chen's%20Research%20Theme%20-%20Symbiosis_Systems_and_Agentic_Innovation_211.jpg)
+![alt](https://github.com/i4AI-LAB/2026ResearchThemes/blob/main/20260131%20Dr%20Yi%20Chen's%20Research%20Theme%20-%20Symbiosis_Systems_and_Agentic_Innovation_0211.jpg)
 
-![alt](https://github.com/i4AI-LAB/2026ResearchThemes/blob/main/20260131%20Dr%20Yi%20Chen's%20Research%20Theme%20-%20Symbiosis_Systems_and_Agentic_Innovation_213.jpg)
+![alt](https://github.com/i4AI-LAB/2026ResearchThemes/blob/main/20260131%20Dr%20Yi%20Chen's%20Research%20Theme%20-%20Symbiosis_Systems_and_Agentic_Innovation_0212.jpg)
 
-![alt](https://github.com/i4AI-LAB/2026ResearchThemes/blob/main/20260131%20Dr%20Yi%20Chen's%20Research%20Theme%20-%20Symbiosis_Systems_and_Agentic_Innovation_214.jpg)
+![alt](https://github.com/i4AI-LAB/2026ResearchThemes/blob/main/20260131%20Dr%20Yi%20Chen's%20Research%20Theme%20-%20Symbiosis_Systems_and_Agentic_Innovation_0213.jpg)
 
-![alt](https://github.com/i4AI-LAB/2026ResearchThemes/blob/main/20260131%20Dr%20Yi%20Chen's%20Research%20Theme%20-%20Symbiosis_Systems_and_Agentic_Innovation_215.jpg)
+![alt](https://github.com/i4AI-LAB/2026ResearchThemes/blob/main/20260131%20Dr%20Yi%20Chen's%20Research%20Theme%20-%20Symbiosis_Systems_and_Agentic_Innovation_0214.jpg)
 
-![alt](https://github.com/i4AI-LAB/2026ResearchThemes/blob/main/20260131%20Dr%20Yi%20Chen's%20Research%20Theme%20-%20Symbiosis_Systems_and_Agentic_Innovation_216.jpg)
+![alt](https://github.com/i4AI-LAB/2026ResearchThemes/blob/main/20260131%20Dr%20Yi%20Chen's%20Research%20Theme%20-%20Symbiosis_Systems_and_Agentic_Innovation_0215.jpg)
 
-![alt](https://github.com/i4AI-LAB/2026ResearchThemes/blob/main/20260131%20Dr%20Yi%20Chen's%20Research%20Theme%20-%20Symbiosis_Systems_and_Agentic_Innovation_217.jpg)
+![alt](https://github.com/i4AI-LAB/2026ResearchThemes/blob/main/20260131%20Dr%20Yi%20Chen's%20Research%20Theme%20-%20Symbiosis_Systems_and_Agentic_Innovation_0216.jpg)
 
 
